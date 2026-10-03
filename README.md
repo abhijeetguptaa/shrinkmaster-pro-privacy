@@ -1,0 +1,1 @@
+# shrinkmaster-pro-privacy
